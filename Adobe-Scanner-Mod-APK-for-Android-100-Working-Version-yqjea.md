@@ -2,9 +2,6 @@
 
 Are you looking for Adobe Scanner Mod APK for Android Apps? Look no further! We provide free and safe download links for the official Adobe Scanner Mod APK Premium Unlocked.
 
-## 🌐 𝔻𝕠𝕨𝕟𝕝𝕠𝕒𝕕 [𝕊𝕖𝕣𝕧𝕖𝕣𝟙] =►► [Adobe Scanner Mod APK 100% Working](https://modyoloo.pages.dev?q=Adobe+Scanner+Mod+APK)
-
-## 🌐 𝔻𝕠𝕨𝕟𝕝𝕠𝕒𝕕 [𝕊𝕖𝕣𝕧𝕖𝕣𝟚] =►► [Adobe Scanner Mod APK 100% Working](https://modyoloo.pages.dev?q=Adobe+Scanner+Mod+APK)
 
 How to download Adobe Scanner Mod APK latest version for Android
 
